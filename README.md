@@ -1,2 +1,3 @@
-# thechuff.github.io
-start
+# Chuff's Home
+
+[Glosa](/glosa)
