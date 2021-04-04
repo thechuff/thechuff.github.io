@@ -1,3 +1,1 @@
-# Chuff's Home
-
-[Glosa](/glosa)
+Chuff's Site
