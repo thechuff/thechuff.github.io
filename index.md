@@ -4,5 +4,5 @@
 [Comics](/art.md)
 
 ## AuxLangs
-[Glosa](/glosa.md)
-[Volapük](/volapuk.md)
+[Glosa](/langs/glosa.md)
+[Volapük](/langs/volapuk.md)
