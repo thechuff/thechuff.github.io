@@ -4,6 +4,6 @@
 * [Comics](/art.md)
 
 ## AuxLangs
-* [Interlingua](/ialadict)
+* [Interlingua](IALADict)
 * [Glosa](/langs/glosa.md)
 * [Volapük](/langs/volapuk.md)
