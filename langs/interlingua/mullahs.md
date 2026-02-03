@@ -1,4 +1,4 @@
-# *Le Mullahs essaya discreditar Baha'u'llah—o assassinar le* (incomplete)
+# *Le Mullahs essaya discreditar Baha'u'llah—o assassinar le* 🚧
 
 (per Kenneth E. Bowers; traducte per Chris A. Huff)
 

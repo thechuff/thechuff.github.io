@@ -1,1 +1,3 @@
-Chuff's Site
+**TheChuff's Site**
+
+[Homepage](index.md)

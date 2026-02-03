@@ -1,4 +1,4 @@
-# Chuff's Interlingua Page
+# TheChuff: Interlingua
 
 ## Traductiones
 
