@@ -24,7 +24,7 @@
 #### Interlingua
 
 * [Interlingua](langs/interlingua.md)
-* [Interlingua Dictionary (WIP)](IALADict/IALADICTIONARY.md)
+* [Interlingua Dictionary (WIP)](IALADict/IALADICTIONARY)
 * [Interlingua Dictionary (searchable) (WIP)](IALADict)
 
 #### Sambahsa
