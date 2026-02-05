@@ -10,3 +10,8 @@
 
 * *Li tre fidas je la originala beletro por elpoluri kaj akceptigi Esperanton.* (Edwin de Kock, *Fajro sur Mia Lango*)
 
+## V
+
+**vintromezo** - n. - midwinter, the middle of winter
+
+* Google-Tradukilo

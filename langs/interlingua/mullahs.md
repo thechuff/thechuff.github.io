@@ -5,7 +5,7 @@
 
 Le influentia de Baha'u'llah post su exilio a Baghdad, ben que on recognite lo universalmente, non esseva benvenite per totes.
 
-Pro alicunos, lo esseva le causa de invidia e consternation, ed iste individuos prendeva mesuras pro sappar su reputation e pro provocar hostilitates fresc contra le communitate de Babis. Inter le opponentes le plus notabile de Baha’u’llah in Bahgdad esseva le consule persian e un del clericos islamic principal del zona. Quanto illes essayava, tamen, illes nunquam succedeva a obtener le supporto del governator qui admirava Baha'u'llah profundemente, ni del massas de cives de Baghdad. Frustrate, su opponentes recurreva a altere mesuras.
+Pro alicunos, lo esseva le causa de invidia e consternation, ed iste individuos prendeva mesuras pro sappar su reputation e pro provocar hostilitates fresc contra le communitate de Babis. Inter le opponentes le plus notabile de Baha'u'llah in Bahgdad esseva le consule persian e un del clericos islamic principal del zona. Quanto illes essayava, tamen, illes nunquam succedeva a obtener le supporto del governator qui admirava Baha'u'llah profundemente, ni del massas de cives de Baghdad. Frustrate, su opponentes recurreva a altere mesuras.
 
 
 | English | IALA  |
